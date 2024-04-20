@@ -1,0 +1,1 @@
+# aviachipta-narxini-bashorat-qilish
